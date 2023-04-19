@@ -1,4 +1,4 @@
-
+# National Credit Direct
 National Credit Direct is an online shopping platform that offers a variety of products such as furniture, electronics, and home appliances. It provides customers with the opportunity to purchase these items on credit with flexible payment options.
 
 The website offers a straightforward and easy-to-use interface that allows customers to shop by category or brand. Customers can browse through the different products available and add them to their shopping cart. Once the items are in the cart, customers can choose to pay for them immediately or apply for credit to make the purchase.
