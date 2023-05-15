@@ -1,10 +1,26 @@
-# National Credit Direct
-National Credit Direct is an online shopping platform that offers a variety of products such as furniture, electronics, and home appliances. It provides customers with the opportunity to purchase these items on credit with flexible payment options.
+National Credit Direct is the leader in providing no credit check financing on over 15,000 consumer electronics and home goods, including:
+    Televisions – LED, QLED, HDTV and more
+    Kitchen appliances – coffee makers, blenders, juicers and more
+    Smart Phones – iPhones, Galaxies and more
+    Laptops – MacBooks, windows, chrome books and more
+    Gaming systems – Sony PlayStations, Nintendo Switches, gaming PCs and more
+    Major Appliances – washers, dryers, refrigerators and more
+    Jewelry – engagement rings, diamond bracelets and more
+    Bedding – mattresses, comforters, sheets and more
+ 
+PLUS, You also get:
+ 
+    FREE GIFTS through our Reward Points program, where you earn 100 Points for every dollar you spend.
+    EARLY PAY DISCOUNTS at 90 and 180 days (up to 50% off)
+ 
+There’s:
+ 
+No Credit Check
+No Employment Check
+No Turn Downs
+Guaranteed Approval
+ 
+Customers discover they get more value compared to rent to own; have lower payment amounts; and they get their payments reported.
+ 
+Give National Credit Direct a try and see for yourself. Rated A+ by the BBB. We are committed to your satisfaction...guaranteed.
 
-The website offers a straightforward and easy-to-use interface that allows customers to shop by category or brand. Customers can browse through the different products available and add them to their shopping cart. Once the items are in the cart, customers can choose to pay for them immediately or apply for credit to make the purchase.
-
-One of the standout features of National Credit Direct is its credit options. The platform offers several financing options with varying repayment terms and interest rates. This means that customers with different credit scores can still have access to credit and purchase the products they need.
-
-National Credit Direct also has a customer support team that is available to answer any questions or concerns. The platform offers a live chat feature where customers can interact with support agents in real-time. Additionally, customers can also contact the support team through email or phone.
-
-In summary, National Credit Direct is an online shopping platform that provides customers with the opportunity to purchase products on credit with flexible payment options. With a user-friendly interface, a range of financing options, and excellent customer support, National Credit Direct is an excellent option for those looking for a hassle-free shopping experience.
