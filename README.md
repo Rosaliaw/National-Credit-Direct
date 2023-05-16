@@ -1,4 +1,5 @@
 National Credit Direct is the leader in providing no credit check financing on over 15,000 consumer electronics and home goods, including:
+
     Televisions – LED, QLED, HDTV and more
     Kitchen appliances – coffee makers, blenders, juicers and more
     Smart Phones – iPhones, Galaxies and more
